@@ -1,2 +1,2 @@
-# Anutamaassociates.github.io
+# Anutamaassociates
 https://anutamaassociates.github.io
